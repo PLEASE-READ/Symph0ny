@@ -17,6 +17,8 @@
 
 ◌¨̮͚ *.ﾟDSMP, MHA, yam cookie kinnies/irls, ankha, genshin(unless i know u)◌¨̮͚ *.ﾟ
 
+
+ponytown :
 please tell me if i am sitting on anyone bc i have alot of people hidden / blocked
 
 i will most likely be off tab so if u wanna int maybe just say "hello?" or somthing and if i dont respond im off tab or ur on my dni list
