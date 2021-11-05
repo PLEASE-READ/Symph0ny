@@ -18,5 +18,7 @@
 ◌¨̮͚ *.ﾟDSMP, MHA, yam cookie kinnies/irls, ankha, genshin(unless i know u)◌¨̮͚ *.ﾟ
 
 please tell me if i am sitting on anyone bc i have alot of people hidden / blocked
-i will most likely be off tab so if u wanna int maybe just say "hello?" or somthing and if i dont respond im afk or ur on my dni list
+
+i will most likely be off tab so if u wanna int maybe just say "hello?" or somthing and if i dont respond im off tab or ur on my dni list
+
 if im at spawn ill most likely be on tab, i like reading peoples conversations
