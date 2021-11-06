@@ -1,5 +1,8 @@
 -˗ˏˋKai, Vamp, Mox, toki, ˎˊ˗
-୨୧ ˻˳˯*॰¨̮ he/xe/purr/ze/ve/she (rarely ever use she)୨୧ ˻˳˯*॰¨̮
+
+*॰¨̮ xe/xem he/him ve/ver୨୧ ˻˳˯*॰¨̮
+(please refrain from using they/them)
+
 
 ₊̣̇.ෆ˟̑*̑fandoms im in:*̑˟̑ෆ.₊̣̇.
 
