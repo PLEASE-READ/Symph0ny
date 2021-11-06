@@ -24,3 +24,10 @@ please tell me if i am sitting on anyone bc i have alot of people hidden / block
 i will most likely be off tab so if u wanna int maybe just say "hello?" or somthing and if i dont respond im off tab or ur on my dni list
 
 if im at spawn ill most likely be on tab, i like reading peoples conversations
+
+Socials:
+
+
+https://www.tiktok.com/@_b0ltzz_?lang=en
+
+https://twitter.com/0Pawz
