@@ -1,6 +1,6 @@
 
 
-꒰ cookie run, squid game, hh, hb, clone high, fnaf(kinda) ꒱
+꒰ cookie run, squid game, hh, hb, clone high, fnaf, yandere sim ꒱
 
 ₍˄·͈༝·͈˄*₎◞ ̑̑I N T ^^
 
