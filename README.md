@@ -1,10 +1,4 @@
--˗ˏˋKai, Vamp, Mox, toki, ˎˊ˗
 
-*॰¨̮ xe/xem he/him ve/ver୨୧ ˻˳˯*॰¨̮
-(please refrain from using they/them)
-
-
-₊̣̇.ෆ˟̑*̑fandoms im in:*̑˟̑ෆ.₊̣̇.
 
 ꒰ cookie run, squid game, hh, hb, clone high, fnaf(kinda) ꒱
 
@@ -29,8 +23,8 @@ i will most likely be off tab so if u wanna int maybe just say "hello?" or somth
 if im at spawn ill most likely be on tab, i like reading peoples conversations
 
 Socials:
-
+READ MY CARRD TO KNOW MY NAME/PRONOUNS/ETC
 
 https://www.tiktok.com/@_b0ltzz_?lang=en
-
+https://moxspagee.carrd.co/
 https://twitter.com/0Pawz
